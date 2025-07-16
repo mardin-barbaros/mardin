@@ -43,7 +43,7 @@ Hiçbir iletişim, kayıt altına alınmaz. Tüm buluşmalar maksimum gizlilik i
 
 Hemen bilgi alın ve uygun zaman dilimlerini öğrenin:
 
-➡️ [Telegram üzerinden iletişime geçin](https://pezevenkdayi.xyz)
+➡️ [Telegram üzerinden iletişime geçin](https://mardinescort.uno/amp/)
 
 > 📅 Randevu için hızlı dönüş garantisi!
 
